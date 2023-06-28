@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Emvoudou grace
 - 👀 I’m a software engineering student
 - 🌱 I am currently looking for new knowledge in the technological field
-- With me discover and deepen our skills in coding and design
+- Together let discover and deepen our skills in coding and design
